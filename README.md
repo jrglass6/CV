@@ -1,2 +1,2 @@
 # CV
-Jessica Glass' CV.
+Jessica Glass' CV
